@@ -11,3 +11,6 @@ https://www.pixiv.net/artworks/121834431
 
 ## PONじゃないもん！ディス子ちゃん(3)
 https://www.pixiv.net/artworks/122594276
+
+## PONじゃないもん！ディス子ちゃん(4)
+https://www.pixiv.net/artworks/124457114
